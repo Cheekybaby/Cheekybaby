@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Shashank Ranjan aka @Cheekybaby
-- 🌱 I’m currently pursuing my major in Electronics and Communication Engineering from IIIT Bhagalpur, Bhagalpur, Bihar, India.
+- 🌱 Computer Science as hobby and Electronics and Communication as Degree
