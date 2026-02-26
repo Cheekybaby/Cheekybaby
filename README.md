@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Shashank Ranjan aka @Cheekybaby
-- 🌱 Computer Science as hobby and Electronics and Communication as Degree
+- 🌱 Electronics and Communication Engineering and I like coding.
